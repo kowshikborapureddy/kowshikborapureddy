@@ -2,7 +2,7 @@
 
 # KOWSHIK BORAPUREDDY
 
-### Aspiring AI Product Engineer
+### Aspiring AI Product Manger
 
 **AI Builder • Aspiring Product Manager • Java Full Stack Developer**
 
