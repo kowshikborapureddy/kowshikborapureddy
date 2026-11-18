@@ -4,7 +4,7 @@
 
 ### Aspiring AI Product Manger
 
-**AI Builder • Aspiring Product Manager • Java Full Stack Developer**
+**AI Builder • Aspiring Product Manager • JavaDeveloper**
 
 <p>
 
